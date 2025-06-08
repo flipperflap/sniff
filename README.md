@@ -5,4 +5,4 @@
 - big till kin (alnst)
 
 
-![Ivan   Till ⋆ Alien Stage](https://github.com/user-attachments/assets/16375bb3-c579-4664-897f-bba4f7363f20)
+![download (34)](https://github.com/user-attachments/assets/6e4f58f9-e5ca-430c-9545-6fbe903d31ed)
